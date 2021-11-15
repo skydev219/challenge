@@ -29,4 +29,4 @@ __NO!__.
 
 Look at this video.
 
-- [🇪🇸 Spanish Version]()
+- [🇪🇸 Spanish Version](https://www.loom.com/share/de7dacc95928498e9d65766fe7666d64)
